@@ -1,3 +1,3 @@
-# Eddie_Isabel
+# Este proyecto es para albañiles
 Pura gente pro
 
